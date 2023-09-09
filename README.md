@@ -1,6 +1,6 @@
-### Hi there 👋🏾
+### Hi there, I'm from Brazil 👋🏾💚💛
 
-👩‍💻 Recém-chegada ao GitHub, mas pronta para brilhar!
+👩🏾‍💻 Recém-chegada ao GitHub, mas pronta para brilhar!
 
 👩🏾 Ela/Dela/She/Her
 
